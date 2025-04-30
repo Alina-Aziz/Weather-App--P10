@@ -38,6 +38,12 @@ Visual weather representation
 
 ![image](https://github.com/user-attachments/assets/9747f89d-169a-43f7-bdb0-df10a67eb5cb)
 
+![image](https://github.com/user-attachments/assets/f8c8f4bc-ebd2-4eea-875b-83163f062900)
+
+![image](https://github.com/user-attachments/assets/4cc440e2-b48f-4e50-8f25-3730dfc64d0a)
+
+
+
 
 
 
